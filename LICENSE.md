@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Adobe Audition for macOS effect with best Adobe Audition for macOS Effect | motion-tracking + lens-flare. Featuring motion-tracking and lens-flare, it's the best
 
 
 
